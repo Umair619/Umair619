@@ -14,7 +14,7 @@
 
 - 📫 How to reach me **razex619@gmail.com**
 
-- 📄 Checkout my resume [bit.ly/myresumeUSK)
+- 📄 Checkout my resume [[bit.ly/myresumeUSK](https://bit.ly/myresumeUSK))
 
 - ⚡ Fun fact **i am lazy but smart**
 
