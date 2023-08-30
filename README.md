@@ -14,7 +14,7 @@
 
 - 📫 How to reach me **razex619@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1QdJnbA9kmHUWuE9z7_ywyXHOkG3bhjJW/view?usp=sharing](https://drive.google.com/file/d/1QdJnbA9kmHUWuE9z7_ywyXHOkG3bhjJW/view?usp=sharing)
+- 📄 Checkout my resume [bit.ly/myresumeUSK)
 
 - ⚡ Fun fact **i am lazy but smart**
 
